@@ -17,6 +17,6 @@
 4. Faire mijoter une heure.
 5. Hacher finement la clémentine sans la peler.
 6. Ajouter les raisins secs, les morceaux de clémentines et le jus de citron.
-6. Faire mijoter 30 minutes.
-7. Hacher et ajouter les noix.
+7. Faire mijoter 30 minutes.
+8. Hacher et ajouter les noix.
 9. Laisser tiédir puis empoter.
